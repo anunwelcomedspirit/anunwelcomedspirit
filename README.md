@@ -7,3 +7,5 @@ discord: xwondurpopx (dont req if you're 18+ please unless i ask you to!)
 
 looking for ponytown moots,,,
 
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=anunwelcomedspirit)
